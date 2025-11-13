@@ -10,8 +10,6 @@
 
 ₊   I'm genderfluid!  ,  
 
-  .  Bisexual ^_^
-
 
 *Now playing...*      ꨄ
 
